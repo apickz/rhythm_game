@@ -1,2 +1,2 @@
 # rhythm_game
-Hopefully I work on this for more than two days without getting bored...
+VONZ IS POOPOO SIMULATOR
